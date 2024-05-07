@@ -38,3 +38,5 @@ _Schritt 1_
 * Wenn die geknetete Fleischmasse zu weich geworden ist, kannst du noch Semmelbrösel zu fügen. Diese Binden die Feuchtigkeit der Paprika und der Spieß hält später schön zusammen.
 
 ## Spiesse Formen
+
+Nun kannst du die Spieße formen. Ich habe dazu einmal große Adana Spieße, aber auch kleine Grillspieße verwendet. Ihr solltet dabei nur darauf achten, dass die Spieße schon flach, aber auch breit sind, damit das Fleisch später gut am Spieß hält. Nimm nun eine Portion der Fleischmasse aus dem Topf heraus und drücke sie fest flach um einen Spieß. Fette deine Hände dazu mit etwas Sonnenblumenöl, damit die Masse nicht an den Händen kleben bleibt. Drücke nun mit zwei Fingern waagerecht kleine Vertiefungen in das Fleisch. So bekommen die Adana Spieße ihr typisches aussehen. Lege die Spieße nun auf ein mit Backfolie belegtes Blech und friere sie ein, bis sie komplett gefroren sind.
