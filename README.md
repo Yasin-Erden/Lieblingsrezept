@@ -13,4 +13,4 @@ _[Visit Sally Welt](https://sallys-blog.de/rezepte/adana-kebab-leckere-grillspie
 
 * **1KG** Lammfleisch
 * **250g** Lammfett
-
+* **75 g** Semmelbrösel
