@@ -12,3 +12,5 @@ _[Visit Sally Welt](https://sallys-blog.de/rezepte/adana-kebab-leckere-grillspie
 ### Einkaufsliste
 
 * **1KG** Lammfleisch
+* **250g** Lammfett
+
