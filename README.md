@@ -19,3 +19,4 @@ _[Visit Sally Welt](https://sallys-blog.de/rezepte/adana-kebab-leckere-grillspie
 * **2** Knoblauch
 * **4 EL** Chiliflocken
 * **1 EL** Isot (das Gewürz ist zu finden im Türkischen Supermarkt)
+* **1 TL** Pfeffer
