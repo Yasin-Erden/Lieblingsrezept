@@ -32,3 +32,5 @@ _Schritt 1_
 #### Tipp 
 
 * Wenn du keinen Fleischwolf hast, kannst du die Zutaten auch ganz fein mit einem Messer hacken.
+
+* Je nachdem wie scharf die Chiliflocken sind, kannst du mehr oder auch weniger verwenden.
