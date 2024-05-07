@@ -46,4 +46,4 @@ Nun kannst du die Spieße formen. Ich habe dazu einmal große Adana Spieße, abe
 Grille die Spieße nun von beiden Seiten für etwa 3-4 Minuten entweder auf dem Grill draußen, auf einer Grillplatte oder in einer Pfanne auf dem Herd. Serviere die Spieße mit dem Zwiebelsalat und Fladenbrot.
 Viel Spaß beim Nachmachen, eure Sally!
 
-![Adana Kebap Grillen](https://youtu.be/f4oRLvSEyd8)
+![Adana Kebap Grillen YouTube](https://youtu.be/f4oRLvSEyd8)
