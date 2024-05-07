@@ -15,3 +15,4 @@ _[Visit Sally Welt](https://sallys-blog.de/rezepte/adana-kebab-leckere-grillspie
 * **250g** Lammfett
 * **75 g** Semmelbrösel
 * **2** Spitzpaprika (Rot)
+* **2** Zwiebeln 
