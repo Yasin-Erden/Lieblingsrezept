@@ -30,3 +30,5 @@ _Schritt 1_
 * Entferne das Kerngehäuse der Paprika und schäle die Zwiebeln und die Knoblauchzehe. Schneide das Fleisch und das fett in lange Streifen. Zerkleinere nun zuerst das Fleisch und das fett und anschließend die Paprika, Zwiebeln und Knoblauchzehen mit Hilfe eines Fleischwolfs. Füge die Gewürze hinzu und vermenge sie mit den Zutaten. Dafür verwende ich immer gerne den K-Haken der Küchenmaschine.
 
 #### Tipp 
+
+* Wenn du keinen Fleischwolf hast, kannst du die Zutaten auch ganz fein mit einem Messer hacken.
