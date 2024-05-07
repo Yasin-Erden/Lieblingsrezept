@@ -22,3 +22,5 @@ _[Visit Sally Welt](https://sallys-blog.de/rezepte/adana-kebab-leckere-grillspie
 * **1 TL** Pfeffer
 * **3 TL** Salz 
 * **0.5 TL** Kreuzkümmel (gemahlen)
+
+### Zubereitung
