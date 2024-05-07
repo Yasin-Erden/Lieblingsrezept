@@ -34,3 +34,5 @@ _Schritt 1_
 * Wenn du keinen Fleischwolf hast, kannst du die Zutaten auch ganz fein mit einem Messer hacken.
 
 * Je nachdem wie scharf die Chiliflocken sind, kannst du mehr oder auch weniger verwenden.
+
+* Wenn die geknetete Fleischmasse zu weich geworden ist, kannst du noch Semmelbrösel zu fügen. Diese Binden die Feuchtigkeit der Paprika und der Spieß hält später schön zusammen.
