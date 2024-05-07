@@ -40,3 +40,10 @@ _Schritt 1_
 ## Spiesse Formen
 
 Nun kannst du die Spieße formen. Ich habe dazu einmal große Adana Spieße, aber auch kleine Grillspieße verwendet. Ihr solltet dabei nur darauf achten, dass die Spieße schon flach, aber auch breit sind, damit das Fleisch später gut am Spieß hält. Nimm nun eine Portion der Fleischmasse aus dem Topf heraus und drücke sie fest flach um einen Spieß. Fette deine Hände dazu mit etwas Sonnenblumenöl, damit die Masse nicht an den Händen kleben bleibt. Drücke nun mit zwei Fingern waagerecht kleine Vertiefungen in das Fleisch. So bekommen die Adana Spieße ihr typisches aussehen. Lege die Spieße nun auf ein mit Backfolie belegtes Blech und friere sie ein, bis sie komplett gefroren sind.
+
+## Adana Grillen
+
+Grille die Spieße nun von beiden Seiten für etwa 3-4 Minuten entweder auf dem Grill draußen, auf einer Grillplatte oder in einer Pfanne auf dem Herd. Serviere die Spieße mit dem Zwiebelsalat und Fladenbrot.
+Viel Spaß beim Nachmachen, eure Sally!
+
+![Adana Kebap Grillen](https://youtu.be/f4oRLvSEyd8)
