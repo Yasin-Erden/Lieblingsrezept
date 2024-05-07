@@ -36,3 +36,5 @@ _Schritt 1_
 * Je nachdem wie scharf die Chiliflocken sind, kannst du mehr oder auch weniger verwenden.
 
 * Wenn die geknetete Fleischmasse zu weich geworden ist, kannst du noch Semmelbrösel zu fügen. Diese Binden die Feuchtigkeit der Paprika und der Spieß hält später schön zusammen.
+
+## Spiesse Formen
